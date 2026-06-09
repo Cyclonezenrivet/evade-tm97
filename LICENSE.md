@@ -1,4 +1,4 @@
-
+Experience evade like never before with evade Scripts top, the #1 Script. Includes auto-collect and auto-upgrade for unbeatable performance.
 
 
 
